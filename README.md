@@ -1,2 +1,6 @@
 # MASTER
 README
+EHKÄ OSAAN TÄN.
+
+
+TAI SIT EN...
